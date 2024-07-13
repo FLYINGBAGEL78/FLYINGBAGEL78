@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @FLYINGBAGEL78
+- 👀 I’m interested in the sea life.
+- 🌱 I’m currently learning how to animate!
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I'm Not A Flying Bagel IRL!
